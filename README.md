@@ -11,7 +11,7 @@ https://github.com/AryanShivva/AR-filter-for-MetaApps/assets/124916476/c59172ae-
 
 
 
-This Effect will be published in two days :
+
 
 You can check out filter in your 
 
